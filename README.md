@@ -2,7 +2,7 @@
   <br/>
 <div align="center">
 
-  | [<img src= "https://mashirooooo.carrd.co/assets/images/image15.gif?v=b80a4fa8" width="275">](https://x.com/ratective) | Don't you find people's attitudes towards gods amusing? A god descends from the heavens, and people worship it unreservedly, blindly following whatever rules are given to them. And yet when they see an ordinary person gain godlike powers by virtue of their own hard work, they treat him with nothing but suspicion, even if he is a compatriot. |
+  | [<img src= "https://mashirooooo.carrd.co/assets/images/image15.gif?v=b80a4fa8" width="275">](https://x.com/ratective) | "𝘋𝘰𝘯'𝘵 𝘺𝘰𝘶 𝘧𝘪𝘯𝘥 𝘱𝘦𝘰𝘱𝘭𝘦'𝘴 𝘢𝘵𝘵𝘪𝘵𝘶𝘥𝘦𝘴 𝘵𝘰𝘸𝘢𝘳𝘥𝘴 𝘨𝘰𝘥𝘴 𝘢𝘮𝘶𝘴𝘪𝘯𝘨? 𝘈 𝘨𝘰𝘥 𝘥𝘦𝘴𝘤𝘦𝘯𝘥𝘴 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘩𝘦𝘢𝘷𝘦𝘯𝘴, 𝘢𝘯𝘥 𝘱𝘦𝘰𝘱𝘭𝘦 𝘸𝘰𝘳𝘴𝘩𝘪𝘱 𝘪𝘵 𝘶𝘯𝘳𝘦𝘴𝘦𝘳𝘷𝘦𝘥𝘭𝘺, 𝘣𝘭𝘪𝘯𝘥𝘭𝘺 𝘧𝘰𝘭𝘭𝘰𝘸𝘪𝘯𝘨 𝘸𝘩𝘢𝘵𝘦𝘷𝘦𝘳 𝘳𝘶𝘭𝘦𝘴 𝘢𝘳𝘦 𝘨𝘪𝘷𝘦𝘯 𝘵𝘰 𝘵𝘩𝘦𝘮. 𝘈𝘯𝘥 𝘺𝘦𝘵 𝘸𝘩𝘦𝘯 𝘵𝘩𝘦𝘺 𝘴𝘦𝘦 𝘢𝘯 𝘰𝘳𝘥𝘪𝘯𝘢𝘳𝘺 𝘱𝘦𝘳𝘴𝘰𝘯 𝘨𝘢𝘪𝘯 𝘨𝘰𝘥𝘭𝘪𝘬𝘦 𝘱𝘰𝘸𝘦𝘳𝘴 𝘣𝘺 𝘷𝘪𝘳𝘵𝘶𝘦 𝘰𝘧 𝘵𝘩𝘦𝘪𝘳 𝘰𝘸𝘯 𝘩𝘢𝘳𝘥 𝘸𝘰𝘳𝘬, 𝘵𝘩𝘦𝘺 𝘵𝘳𝘦𝘢𝘵 𝘩𝘪𝘮 𝘸𝘪𝘵𝘩 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘣𝘶𝘵 𝘴𝘶𝘴𝘱𝘪𝘤𝘪𝘰𝘯, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘩𝘦 𝘪𝘴 𝘢 𝘤𝘰𝘮𝘱𝘢𝘵𝘳𝘪𝘰𝘵."|
 | :---: | :---: |
 
 <br/>
